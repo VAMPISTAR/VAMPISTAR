@@ -4,4 +4,4 @@ readme is a wip (,,>﹏<,,)
 [rentry](https://rentry.co/keehll) ┆ [pronouns page](https://en.pronouns.page/vampistar)
 
 
-![.☘︎ ݁˖](https://komarev.com/ghpvc/?username=VAMPISTAR)
+![freaksters](https://komarev.com/ghpvc/?username=VAMPISTAR)
